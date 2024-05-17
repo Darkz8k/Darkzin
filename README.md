@@ -2,7 +2,7 @@
 
 Meu mome é Kauã Soares
 
-- Estudando ma alura
+- Estudando no alura
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
