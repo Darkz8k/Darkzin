@@ -7,3 +7,5 @@ Meu mome é Kauã Soares
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ![](https://media.tenor.com/U2IQPoBhRTkAAAAi/kafama-s%C4%B1k%C4%B1cam-tnd.gif)
+
+![](https://media.tenor.com/U2IQPoBhRTkAAAAi/kafama-s%C4%B1k%C4%B1cam-tnd.gif)
